@@ -10,25 +10,40 @@ General advice:
 
 1. The quality of your sleep may affect your general performance, 
 
-1.1. that is why getting at least 8 hours of sleep ensures you are sleeping enough, but not only that, you must be consistent with your sleep, sleeping enough as often as possible.
-2.2. that is why having an appropriate sleep environment is crucial for resting well. Try to keep it as similar to a blackout, and not eating nor using screens immediately before going to sleep.
+1.1.1. that is why getting at least 8 hours of sleep ensures you are sleeping enough, but not only that, you must be consistent with your sleep, sleeping enough as often as possible.
+1.1.2. that is why having an appropriate sleep environment is crucial for resting well. Try to keep it as similar to a blackout, and not eating nor using screens immediately before going to sleep.
+
+1.2.1. Doing some breathing exercises may help you get a better and longer rest.
+1.2.2. Try setting an alarm to remind you of NO MORE SCREENS.
+1.2.3. Unbreakable rule: No caffeine before going to bed!
 
 2. Physical activity comes in a variety of ways, 
 
-2.1. a very interesting way is dancing, having fun with your friends at a party (watch out for alcohol!), learning new moves in an academy or just having a romantic night with your partner!
-2.2. like hiking, which gives you the opportunity to not only exercise but also contemplate beautiful scenes of nature while also giving yourself a dose of fresh air.
-2.3. being practicing sports, a very traditional one. This one is particularly good for kids and young adults, as the discipline and team work that sports require provide with complementary skills.
-2.4. for example, you may find new ways to do daily activities in a more healthy way, like going to your school or job in a bicycle, avoiding taking escalators or elevators when possible.
-2.5. like, you're gonna love this one. Have sex with your partner, as if it wasn't fun on its own, it's cardio! And also strengths bonds within your relationship.
+2.1.1. a very interesting way is dancing, having fun with your friends at a party (watch out for alcohol!), learning new moves in an academy or just having a romantic night with your partner!
+2.1.2. like hiking, which gives you the opportunity to not only exercise but also contemplate beautiful scenes of nature while also giving yourself a dose of fresh air.
+2.1.3. being practicing sports, a very traditional one. This one is particularly good for kids and young adults, as the discipline and team work that sports require provide with complementary skills.
+2.1.4. for example, you may find new ways to do daily activities in a more healthy way, like going to your school or job in a bicycle, avoiding taking escalators or elevators when possible.
+2.1.5. like, you're gonna love this one. Have sex with your partner, as if it wasn't fun on its own, it's cardio! And also strengths bonds within your relationship.
 
+2.2.1. Try getting some comfy and safe shoes that motivates you to walk.
+2.2.2. If you love parties, grab an outfit that allows you to perform easily.
+2.2.3. Always keep an eye for overuse injuries, give yourself a break from time to time.
+2.2.4. And in case you were thinking, your sexy time (alone or with company) should gradually increase in exertion.
 
 3. Regarding nutrition, ask yourself, 
 
-3.1. what am I eating? Always try to eat balanced. Remember that you need carbs, fats, protein, vitamins, minerals and fiber, while keeping over processed and additives away.
-3.2. how am I eating? Steaming the ingredients that you don't want to eat raw is the best way to maintain a high amount of nutrients in them, or if you want to fry something, then use non-hydrogenated oil and keep it clean.
-3.3. where am I eating? Eating in a place specifically designed for that helps digestion. The more comfortable you are and the fewer distractors around you, the better you absorb your food.
+3.1.1. what am I eating? Always try to eat balanced. Remember that you need carbs, fats, protein, vitamins, minerals and fiber, while keeping over processed and additives away.
+3.1.2. how am I eating? Steaming the ingredients that you don't want to eat raw is the best way to maintain a high amount of nutrients in them, or if you want to fry something, then use non-hydrogenated oil and keep it clean.
+3.1.3. where am I eating? Eating in a place specifically designed for that helps digestion. The more comfortable you are and the fewer distractors around you, the better you absorb your food.
+
+3.2.1. If you want some healthy recipes, go check our Recipes section, you will love it!
+3.2.2. Try to use water when possible, if not, grab for non-hydrogenated oil, rich in unsaturated fats, low saturated fats and cholesterol and absolutely zero trans fats.
+3.2.3. Eat in a quiet, comfortable place, away from your work, study, bedroom or similar.
 
 4. Having support is the backup plan we all need, 
 
-4.1. it doesn't matter if it is a friend, la relative or your partner, we all need and will find very useful to have someone who pushes us further and give us a pat in the back whenever we are down.
-4.2. like being part of a social group or a tribe where you can find yourself among others of your kind, protects against depression or helps diminish its effects.
+4.1.1. it doesn't matter if it is a friend, la relative or your partner, we all need and will find very useful to have someone who pushes us further and give us a pat in the back whenever we are down.
+4.1.2. like being part of a social group or a tribe where you can find yourself among others of your kind, protects against depression or helps diminish its effects.
+
+4.2.1. You don't to tell your fears, insecurities or problems to anyone, and definitely should not, but it is crucial that you open yourself from time to time to certain individuals.
+4.2.2. Getting counseling is more common every day, as it is proven that it helps alleviate every day's problems.
